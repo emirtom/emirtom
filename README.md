@@ -1,1 +1,1 @@
-Hi! I'm Emir. I'm currently getting my education in Bilkent University's CS Department.
+Hi! I'm Emir. I've founded EigenLaw with my friends and trying to survive through it.
